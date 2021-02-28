@@ -1,2 +1,2 @@
 # win-productkeygen
-windows random key generator lol
+windows random product key generator lol
